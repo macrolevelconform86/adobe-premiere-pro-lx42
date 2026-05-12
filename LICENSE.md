@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for macOS smart Template: keyframe-animation & scene-transitions is the best Adobe Premiere Pro for macOS template, featuring keyframe-animation and
 
 
 
